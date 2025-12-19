@@ -1,1 +1,3 @@
 este arquivo contem informações adicionais para git
+
+as novas alterações do documento
