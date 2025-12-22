@@ -1,1 +1,1 @@
-# Curso TMW Git & GitHub 2025SS
+# Curso TMW Git & GitHub 2025
