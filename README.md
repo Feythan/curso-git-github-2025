@@ -9,3 +9,6 @@ Confira tudo o que temos no nosso YouTube. É gratis!
 
 Segue o Link
 tudo é muito fácil
+além do nosso site também fique ligado no youtube
+as coisas não são tão fáceis assim
+olá
